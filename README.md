@@ -1,5 +1,9 @@
 # Kids-Stationery-Creative-Art-Kits
-Explore colourful kids stationery kits, school stationery kits, stationery combo packs, DIY stationery sets, drawing kits, watercolor paint sets and kids art and craft kits designed for creative learning and fun. Perfect for coloring activities, birthday gifts, return gifts for kids and Navratri gifts.
+KHAS Creations began with a simple idea — that everything can feel a little special, no matter how small. We bring you handpicked stationery, DIY kits, toys, belts, and baby essentials that are cute to look at, easy to love, and easy on the pocket.
+
+Whether you need a colourful painting kit for your child, adorable return gifts for Navratri, or everyday stationery that just works — we choose every product with care, so it genuinely feels khaas, not just another item on a shelf.
+
+We're a small, growing brand shipping across India with COD available, because we want you to shop without a second thought. Khas as unique — that's our promise, with every order.
 ## Category 1 : Kids Stationery & Creative Art Kits
   * [Kids Creative Stationery Kit](https://khascreations.com/kids-creative-stationery-kit)
   * [Panda Stationery Kit](https://khascreations.com/panda-stationery-kit)
