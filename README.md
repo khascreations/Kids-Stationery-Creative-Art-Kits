@@ -13,3 +13,10 @@ We're a small, growing brand shipping across India with COD available, because w
 ## Category 2 : 3D EVA Pouch and Stationery Set
 * [Capybara Kids Stationery Combo](https://khascreations.com/capybara-kids-stationery-combo)
 * [Capybara Study Buddy Stationery Set](https://khascreations.com/capybara-studybuddy-stationery-set)
+* [Labubu Kids Pouch Stationery Combo](https://khascreations.com/labubu-kids-pouch-stationery-combo)
+* [Labubu 3D EVA Pouch Combo](https://khascreations.com/labubu-3deva-pouch-combo)
+* [Labubu Pouch Stationery Combo](https://khascreations.com/labubu-pouch-stationery-combo)
+* [Labubu Kids Stationery Combo](https://khascreations.com/labubu-stationery-combo)
+* [Labubu Pouch School Kit](https://khascreations.com/labubu-pouch-school-kit)
+* [Pink Pouch Stationery Combo](https://khascreations.com/pink-pouch-stationery-combo)
+* [School Essentials Combo Set](https://khascreations.com/school-essentials-combo-set)
